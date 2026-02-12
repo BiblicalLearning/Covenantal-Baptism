@@ -195,3 +195,6 @@ Free to use for personal and ministry purposes. Please maintain attribution.
 ---
 
 **"For sin will have no dominion over you, since you are not under law but under grace."** — Romans 6:14 🌊
+
+
+**"For sin will have no dominion over you, since you are not under law but under grace."** — Romans 6:14 🌊
