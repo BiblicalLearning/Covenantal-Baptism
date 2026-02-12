@@ -4,7 +4,7 @@
 
 From the Law to Grace Through Repentance and the Spirit
 
-🔗 **[Start the Study](https://biblicallearning.github.io/covenantal-baptism/)**
+🔗 **[Start the Study](https://biblicallearning.github.io/Covenantal-Baptism/)**
 
 ---
 
