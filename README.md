@@ -36,7 +36,7 @@ Understanding this covenantal framework transforms our reading of the New Testam
 
 A printable 1-page outline is included for use in Bible study groups, discipleship sessions, or personal study.
 
-🔗 **[View Printable Outline](https://biblicallearning.github.io/covenantal-baptism/outline.html)**
+🔗 **[View Printable Outline](https://biblicallearning.github.io/Covenantal-Baptism/outline.html)**
 
 ---
 
@@ -193,8 +193,5 @@ Free to use for personal and ministry purposes. Please maintain attribution.
 *"Seek first the Kingdom, and watch God move mountains."*
 
 ---
-
-**"For sin will have no dominion over you, since you are not under law but under grace."** — Romans 6:14 🌊
-
 
 **"For sin will have no dominion over you, since you are not under law but under grace."** — Romans 6:14 🌊
