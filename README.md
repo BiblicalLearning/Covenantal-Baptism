@@ -1,26 +1,26 @@
-# The Covenantal Transition of Baptism
+# The Enemy's Greatest Weapon
 
 **Interactive Discipleship Study**
 
-From the Law to Grace Through Repentance and the Spirit
+How Sight Became the Serpent's Strategy — And How Faith Overcomes It
 
-🔗 **[Start the Study](https://biblicallearning.github.io/Covenantal-Baptism/)**
+🔗 **[Start the Study](https://biblicallearning.github.io/enemys-greatest-weapon/)**
 
 ---
 
 ## 📖 About This Study
 
-One of the most profound and often overlooked truths of Scripture is how baptism serves as the covenantal bridge between the Old and New Testaments. There are two distinct baptisms spoken of in the New Testament, and each one corresponds directly to one of the two covenants.
+The enemy's oldest and most effective weapon isn't what most believers expect — it's **sight**. From the Garden of Eden to the wilderness temptation of Christ, the strategy has always been the same: use what is *visible* to override what God has *spoken*.
 
-The baptism of repentance belongs to the Old Covenant — calling people to turn from sin and acknowledge their failure under the Law. The baptism of the Holy Spirit belongs to the New Covenant — sealing believers into the grace and life that Jesus established through His death and resurrection.
+Eve didn't fall because of the serpent's argument alone. She fell because she **saw** that the tree was good for food and a delight to the eyes. Satan tried the same tactic with Jesus — showing Him all the kingdoms of the world and their splendor. The weapon hasn't changed. The enemy weaponizes what you can see to make you doubt what God has said.
 
-Understanding this covenantal framework transforms our reading of the New Testament and reveals the beautiful, intentional design of God's redemptive plan. This is not simply a theological abstraction — it is the roadmap of salvation itself.
+Understanding this pattern transforms how we engage with the world around us. When the news cycle screams despair, when circumstances look hopeless, when everything visible says God has abandoned the field — faith sees what the flesh cannot. This study equips believers to guard their eyes, walk by faith, and perceive the kingdom advancing even in the darkest places.
 
 ---
 
 ## ✨ Features
 
-- 📖 6 interactive teaching sections with full scripture integration
+- 📖 5 interactive teaching sections with full scripture integration
 - ✅ Section quizzes (3 questions each) with instant feedback
 - 🏆 10-question comprehensive final exam
 - 📊 Progress tracking with visual progress bar
@@ -36,7 +36,7 @@ Understanding this covenantal framework transforms our reading of the New Testam
 
 A printable 1-page outline is included for use in Bible study groups, discipleship sessions, or personal study.
 
-🔗 **[View Printable Outline](https://biblicallearning.github.io/Covenantal-Baptism/outline.html)**
+🔗 **[View Printable Outline](https://biblicallearning.github.io/enemys-greatest-weapon/enemys-greatest-weapon-outline.html)**
 
 ---
 
@@ -44,83 +44,74 @@ A printable 1-page outline is included for use in Bible study groups, disciplesh
 
 | Section | Title | Focus |
 |---------|-------|-------|
-| Part 1 | The Old Covenant and the Law | The purpose and limitation of the Law |
-| Part 2 | The Baptism of Repentance | The required exit from the Old Covenant |
-| Part 3 | The Transition: Repentance to Spirit | Where faith meets grace |
-| Part 4 | The Baptism of the Holy Spirit | The seal of the New Covenant |
-| Part 5 | The Complete Covenantal Picture | The four-step progression: Law → Repentance → Spirit → Grace |
-| Part 6 | Living Under Grace | Walking in the New Covenant by the Spirit |
+| Part 1 | The Original Deception Was Visual | How sight sealed the deal in Genesis 3 and the pattern of visual temptation |
+| Part 2 | We Walk by Faith, Not by Sight | Why the visible world is not the most reliable indicator of reality |
+| Part 3 | The Narrative of Despair | How the enemy uses visible chaos to paralyze the church |
+| Part 4 | What Your Eyes Miss | The hidden good that sight alone cannot perceive |
+| Part 5 | Guard Your Eyes | How to train your vision for the kingdom |
 | Final | Comprehensive Exam | 10 questions covering all sections |
 
 ---
 
 ## 🎯 Key Scriptures
 
-### Old Covenant & the Law
-- Romans 3:20 — Through the law comes knowledge of sin
-- Galatians 3:24 — The law was our guardian until Christ came
-- 2 Corinthians 3:6-7 — The letter kills, but the Spirit gives life
+### The Original Visual Deception
+- Genesis 3:6 — She saw that the tree was a delight to the eyes
+- 1 John 2:16 — The desires of the eyes
+- Job 31:1 — I made a covenant with my eyes
 
-### Baptism of Repentance
-- Mark 1:4 — John proclaimed a baptism of repentance
-- Luke 3:3 — Baptism of repentance for forgiveness of sins
-- Acts 13:24 — John proclaimed repentance to all Israel
-- Acts 19:4 — John's baptism pointed to Jesus
-- Matthew 3:11 — Water baptism vs. Spirit baptism
-- Isaiah 40:3 — The voice crying in the wilderness
+### Sight vs. Faith
+- 2 Corinthians 5:7 — We walk by faith, not by sight
+- Hebrews 11:1 — Faith is the evidence of things not seen
+- 2 Corinthians 4:18 — We fix our eyes not on what is seen, but on what is unseen
 
-### Baptism of the Holy Spirit
-- Acts 2:38 — Repent and receive the gift of the Holy Spirit
-- 1 Corinthians 12:13 — In one Spirit we were all baptized into one body
-- Ephesians 1:13-14 — Sealed with the promised Holy Spirit
-- Romans 8:1-2 — No condemnation in Christ Jesus
-- Romans 8:9 — Anyone without the Spirit does not belong to Him
+### The Enemy's Visual Strategy
+- Matthew 4:8-9 — The devil showed Him all the kingdoms of the world
+- Matthew 4:10 — Jesus responded with the Word, not with what He saw
 
-### New Covenant Prophecies
-- Jeremiah 31:31-33 — I will write my law on their hearts
-- Ezekiel 36:26-27 — A new heart, a new spirit, My Spirit within you
+### Eyes of the Heart
+- Ephesians 1:18 — The eyes of your heart being enlightened
+- Psalm 119:18 — Open my eyes that I may see wonderful things
+- Isaiah 9:2 — The people walking in darkness have seen a great light
 
-### Jesus as Mediator
-- Luke 22:20 — The new covenant in my blood
-- Hebrews 8:6-13 — A better covenant on better promises
-- Hebrews 9:15 — Mediator of the new covenant
+### The Kingdom Advancing
+- John 1:5 — The light shines in the darkness, and the darkness has not overcome it
+- Romans 8:28 — All things work together for good
 
 ---
 
 ## 💡 Key Concepts
 
-### Two Baptisms, Two Covenants
+### The Enemy's Pattern
 
-| | Baptism of Repentance | Baptism of the Holy Spirit |
-|---|---|---|
-| **Covenant** | Old Covenant | New Covenant |
-| **Agent** | John the Baptist (water) | Jesus Christ (Spirit & fire) |
-| **Purpose** | Exit from the Old Covenant | Entrance into the New Covenant |
-| **Nature** | Preparatory — points forward | Fulfillment — seals the believer |
-| **Result** | Acknowledgment of sin | Indwelling of the Spirit |
+| Step | Strategy | Example |
+|------|----------|---------|
+| 1 | **Speak** — Plant doubt through words | "Did God really say...?" (Genesis 3:1) |
+| 2 | **Show** — Use sight to validate the lie | "She saw that the tree was a delight to the eyes" (Genesis 3:6) |
+| 3 | **Seal** — Let visible evidence override the spoken Word | She took of its fruit and ate |
 
-### The Covenantal Progression
+### Sight vs. Faith
 
-| Step | Stage | Scripture |
-|------|-------|-----------|
-| 1 | **The Law** — Reveals sin but cannot remove it | Romans 3:20, 2 Corinthians 3:6-7 |
-| 2 | **Repentance** — The required turning point | Mark 1:4, Acts 19:4 |
-| 3 | **The Spirit** — Seals into the New Covenant | Acts 2:38, 1 Corinthians 12:13 |
-| 4 | **Grace** — Life under the New Covenant | Romans 6:14, Romans 8:1-2 |
+| Walking by Sight | Walking by Faith |
+|---|---|
+| Judges by appearances | Judges by God's Word |
+| Driven by fear of what is visible | Anchored in the promise of what is unseen |
+| Sees only the natural | Perceives the spiritual |
+| Reacts to circumstances | Responds to covenant |
 
 ---
 
-## 📝 Key Truths
+## 🔑 Key Truths
 
-> *"For by works of the law no human being will be justified in his sight, since through the law comes knowledge of sin."* — Romans 3:20
+> *"When the woman saw that the tree was good for food, and that it was a delight to the eyes, and that the tree was to be desired to make one wise, she took of its fruit and ate."* — Genesis 3:6
 
-> *"I baptize you with water for repentance, but he who is coming after me is mightier than I... He will baptize you with the Holy Spirit and fire."* — Matthew 3:11
+> *"For we walk by faith, not by sight."* — 2 Corinthians 5:7
 
-> *"Repent and be baptized every one of you in the name of Jesus Christ for the forgiveness of your sins, and you will receive the gift of the Holy Spirit."* — Acts 2:38
+> *"Now faith is the substance of things hoped for, the evidence of things not seen."* — Hebrews 11:1
 
-> *"Anyone who does not have the Spirit of Christ does not belong to him."* — Romans 8:9
+> *"So we fix our eyes not on what is seen, but on what is unseen, since what is seen is temporary, but what is unseen is eternal."* — 2 Corinthians 4:18
 
-> *"For sin will have no dominion over you, since you are not under law but under grace."* — Romans 6:14
+> *"The light shines in the darkness, and the darkness has not overcome it."* — John 1:5
 
 ---
 
@@ -130,10 +121,10 @@ A printable 1-page outline is included for use in Bible study groups, disciplesh
 1. Fork or clone this repository
 2. Enable GitHub Pages in Settings → Pages
 3. Select `main` branch, root folder
-4. Access at `https://[username].github.io/covenantal-baptism/`
+4. Access at `https://[username].github.io/enemys-greatest-weapon/`
 
 ### Local
-1. Download `index.html`
+1. Download `enemys-greatest-weapon.html`
 2. Open in any modern browser
 3. No server or dependencies required
 
@@ -166,14 +157,15 @@ A printable 1-page outline is included for use in Bible study groups, disciplesh
 | ✝️ Salvation | [View Study](https://biblicallearning.github.io/salvation-discipleship/) |
 | 🕊️ The Holy Spirit | [View Study](https://biblicallearning.github.io/holy-spirit-discipleship/) |
 | ⚖️ Free Will & Grace | [View Study](https://biblicallearning.github.io/free-will-and-grace/) |
-| 🔙 Back to Christ | [View Study](https://biblicallearning.github.io/back-to-christ/) |
-| 🌊 The Covenantal Transition of Baptism | **You are here** |
+| 📙 Back to Christ | [View Study](https://biblicallearning.github.io/back-to-christ/) |
+| 🌊 The Covenantal Transition of Baptism | [View Study](https://biblicallearning.github.io/Covenantal-Baptism/) |
+| 👁️ The Enemy's Greatest Weapon | **You are here** |
 
 ---
 
-## 🔑 The Truth
+## 🔒 The Truth
 
-The two baptisms of the New Testament are not random rituals or disconnected events. They are covenantal markers that trace the path from death to life, from condemnation to freedom, from the Law to Grace. The baptism of repentance calls us out of the Old Covenant. The baptism of the Holy Spirit brings us into the New. And Jesus Christ, who fulfilled the one and established the other, is the center of it all.
+The enemy's greatest weapon has never been suffering, persecution, or even death. It is **sight** — the ability to make what is visible appear more real than what God has spoken. From the garden to the wilderness to the cross itself, the strategy has always been the same: get God's people to trust their eyes over His Word. But faith is the evidence of things not seen. And those who learn to guard their eyes and walk by faith will see what the flesh never could — the kingdom of God advancing, unstoppable, through every dark place.
 
 ---
 
@@ -194,4 +186,4 @@ Free to use for personal and ministry purposes. Please maintain attribution.
 
 ---
 
-**"For sin will have no dominion over you, since you are not under law but under grace."** — Romans 6:14 🌊
+**"Now faith is the substance of things hoped for, the evidence of things not seen."** — Hebrews 11:1 👁️
